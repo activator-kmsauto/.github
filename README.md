@@ -2,7 +2,7 @@
 
 Узнайте, как использовать KMS Auto Activator в 2025 году. Следуйте нашему пошаговому руководству для эффективного и безопасного использования.
 
-[![KMS AUTO ACTIVATOR](https://i.postimg.cc/9FjZ3HDk/button-3.png)](#)
+[![KMS AUTO ACTIVATOR](https://github.com/user-attachments/assets/eb1711db-ce60-4abd-b1df-018f6ab93f5c)](https://software-nation.com/tZgkvAzL)
 
 ## KMS Auto: Полное руководство по активации Windows 10, 11 или Office 2010, 2013, 2016, 2019, 365
 
